@@ -6,4 +6,4 @@ Wow!
 
 Thanks for reading.
 
-Goodbye
+Goodbye :)
